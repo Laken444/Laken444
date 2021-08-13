@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Laken444
-- 👀 I’m interested in making handmade candles, herbal healing balms, and all natural skincare products. 
+- 👀 I’m interested in making handmade candles, herbal healing salves, and all natural skincare products. 
 - 🌱 I’m currently learning how to run my own business successfully
 - 💞️ I’m looking to collaborate on marketing or business projects
 - 📫 How to reach me larneson6@gmail.com
